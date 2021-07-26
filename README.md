@@ -1,16 +1,40 @@
-### Hi there 👋
+### Witaj na profilu/blogu 'kraina lodu cały film'. Znalazłeś się tutaj nie przez przypadek i nie wyjdziesz z niczym! Przygotowałem dla Ciebie wiele ciekawostek z bajki kraina lodu cda. Wejdź na bloga i zobacz czego wcześniej nie wiedziałeś!
 
-<!--
-**kraina-lodu2/kraina-lodu2** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+- 👋 Dostarczam najlepsze informacje o całym filmie Kraina Lodu 2 !
+- 🐤 Nauczysz się tu zręczności oraz nowych umiejętności!
+- 💭 Szukam najciekawszych ciekawostek
+- 💙 2021 Strzały : Kraina Lodu 2 wciąż zyje! może będzie Kraina lodu 3?
+- 😄 Smieszny fakt : Tarzan jest spokrewniony z Kraina Lodu 2, więcej na blogu!
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+### Połącz się ze mną!:
+
+[<img align="left" alt="codeSTACKr.com" width="22px" src="https://raw.githubusercontent.com/iconic/open-iconic/master/svg/globe.svg" />][website]
+[<img align="left" alt="codeSTACKr | YouTube" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/youtube.svg" />][youtube]
+[<img align="left" alt="codeSTACKr | Twitter" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/twitter.svg" />][twitter]
+[<img align="left" alt="codeSTACKr | LinkedIn" width="22px" src="https://cdn.jsdelivr.net/npm/simple-icons@v3/icons/linkedin.svg" />][linkedin]
+
+<br />
+
+
+---
+
+### 💬 Ostatnie Posty na Blogach
+
+<!-- BLOG-POST-LIST:START -->
+<!-- BLOG-POST-LIST:END -->
+
+
+- [Blogspot...](https://krainalodu2.blogspot.com/feeds/posts/default?alt=rss)
+- [Wordpress...](https://krainalodufilm.wordpress.com/feed/)
+- [Tumblr...](https://krainaloducda.tumblr.com/rss)
+- [Webbly...](https://kraina-lodu.weebly.com/1/feed)
+- [Todledo...](http://www.toodledo.com/info/news_rss.php)
+- [Pinterest...](https://in.pinterest.com/krainaloduogladaj/kraina-lodu-2.rss)
+
+
+[website]: https://sites.google.com/view/kraina-lodu-caly-film/
+[twitter]: https://twitter.com/lodu_kraina
+[youtube]: https://www.youtube.com/channel/UCfKA-erPWvZiQk-uaeksNWA
+[linkedin]: https://www.linkedin.com/in/kraina-lodu-7a2224218/
