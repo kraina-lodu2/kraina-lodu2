@@ -23,6 +23,7 @@
 ### 💬 Ostatnie Posty na Blogach
 
 <!-- BLOG-POST-LIST:START -->
+- [Kraina Lodu 2 cały film cda](https://krainaloducda.tumblr.com/post/657727733089042432)
 <!-- BLOG-POST-LIST:END -->
 
 
