@@ -23,6 +23,7 @@
 ### 💬 Ostatnie Posty na Blogach
 
 <!-- BLOG-POST-LIST:START -->
+- [Kraina Lodu 2 Cały film lektor pl](https://krainaloducda.tumblr.com/post/658438145361297408)
 - [Kraina Lodu 2 Cały film CDA Po polsku](https://krainaloducda.tumblr.com/post/658248754402672640)
 - [🔥Kraina.Lodu.2.🔥Cały.Film po polsku.(2019) Film HDRip.XviD.AC3-EVO 💗](https://www.youtube.com/watch?v=8XLNOWUVtEE)
 - [Kraina lodu 2 - Cały film - Na szczęście nadal ma tę moc! Recenzja](https://krainaloducda.tumblr.com/post/657983594905632768)
