@@ -23,6 +23,7 @@
 ### 💬 Ostatnie Posty na Blogach
 
 <!-- BLOG-POST-LIST:START -->
+- [Kraina lodu 2 cały film online - Czy warto oglądać online?](https://krainaloducda.tumblr.com/post/658799468501778432)
 - [Kraina Lodu 2 Cały film po polsku + Malowanki](https://krainaloducda.tumblr.com/post/658771334412779520)
 - [Kraina.Lodu.2.🔥Cały.Film CDA.(2019) Film 1080p BluRay x264 anoXmous 💗](https://www.youtube.com/watch?v=sVmF6joZN9w)
 - [Kraina Lodu 2 Cały film lektor pl](https://krainaloducda.tumblr.com/post/658438145361297408)
