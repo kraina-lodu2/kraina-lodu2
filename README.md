@@ -23,6 +23,7 @@
 ### 💬 Ostatnie Posty na Blogach
 
 <!-- BLOG-POST-LIST:START -->
+- ["Krainy Lodu 2 Cały Film" - Scenariusz](https://krainaloducda.tumblr.com/post/658950221590609920)
 - [Kraina lodu 2 cały film online - Czy warto oglądać online?](https://krainaloducda.tumblr.com/post/658799468501778432)
 - [Kraina Lodu 2 Cały film po polsku + Malowanki](https://krainaloducda.tumblr.com/post/658771334412779520)
 - [Kraina.Lodu.2.🔥Cały.Film CDA.(2019) Film 1080p BluRay x264 anoXmous 💗](https://www.youtube.com/watch?v=sVmF6joZN9w)
@@ -32,7 +33,6 @@
 - [Kraina lodu 2 - Cały film - Na szczęście nadal ma tę moc! Recenzja](https://krainaloducda.tumblr.com/post/657983594905632768)
 - [Kraina Lodu 2 cały film po polsku](https://krainaloducda.tumblr.com/post/657901132627247104)
 - [🔥Kraina.Lodu.2.🔥Cały.Film.(2019) Film HDRip.XviD.AC3-EVO 💗](https://www.youtube.com/watch?v=rPNQJjVxYJg)
-- [Kraina Lodu 2 cały film cda](https://krainaloducda.tumblr.com/post/657727733089042432)
 <!-- BLOG-POST-LIST:END -->
 
 
