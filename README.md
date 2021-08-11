@@ -23,6 +23,7 @@
 ### 💬 Ostatnie Posty na Blogach
 
 <!-- BLOG-POST-LIST:START -->
+- [Kraina Lodu 2 Cały film ! Zrobiła Wszystko, co w jej mocy](https://krainaloducda.tumblr.com/post/659235845272944640)
 - ["Krainy Lodu 2 Cały Film" - Scenariusz](https://krainaloducda.tumblr.com/post/658950221590609920)
 - [Kraina lodu 2 cały film online - Czy warto oglądać online?](https://krainaloducda.tumblr.com/post/658799468501778432)
 - [Kraina Lodu 2 Cały film po polsku + Malowanki](https://krainaloducda.tumblr.com/post/658771334412779520)
