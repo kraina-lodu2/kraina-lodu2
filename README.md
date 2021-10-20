@@ -23,6 +23,8 @@
 ### 💬 Ostatnie Posty na Blogach
 
 <!-- BLOG-POST-LIST:START -->
+- [Me Before You Zanim się pojawiłeś (2016) cda](https://www.youtube.com/watch?v=Eeo-h1IAdZ8)
+- [Pamiętnik (2004) Noah and Alie The notebook (2004) cda](https://www.youtube.com/watch?v=kAMORvF5i0Q)
 - [The Vow (2012) Paige and Leo - kiss scene I że cię nie opuszczę (2012) Cały Film cda](https://www.youtube.com/watch?v=KEPjkz3M4-U)
 - [Kraina Lodu 2 Cały Film cda - Oglądaj Online lub Pobierz](https://krainaloducda.tumblr.com/post/661117246265065472)
 - [Kraina Lodu 2 Cały film ! Zrobiła Wszystko, co w jej mocy](https://krainaloducda.tumblr.com/post/659235845272944640)
@@ -31,8 +33,6 @@
 - [Kraina Lodu 2 Cały film po polsku + Malowanki](https://krainaloducda.tumblr.com/post/658771334412779520)
 - [Kraina Lodu 2 Cały film lektor pl](https://krainaloducda.tumblr.com/post/658438145361297408)
 - [Kraina Lodu 2 Cały film CDA Po polsku](https://krainaloducda.tumblr.com/post/658248754402672640)
-- [Kraina lodu 2 - Cały film - Na szczęście nadal ma tę moc! Recenzja](https://krainaloducda.tumblr.com/post/657983594905632768)
-- [Kraina Lodu 2 cały film po polsku](https://krainaloducda.tumblr.com/post/657901132627247104)
 <!-- BLOG-POST-LIST:END -->
 
 
