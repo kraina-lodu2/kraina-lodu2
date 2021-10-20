@@ -23,6 +23,7 @@
 ### 💬 Ostatnie Posty na Blogach
 
 <!-- BLOG-POST-LIST:START -->
+- [The Vow (2012) Paige and Leo - kiss scene I że cię nie opuszczę (2012) Cały Film cda](https://www.youtube.com/watch?v=KEPjkz3M4-U)
 - [Kraina Lodu 2 Cały Film cda - Oglądaj Online lub Pobierz](https://krainaloducda.tumblr.com/post/661117246265065472)
 - [Kraina Lodu 2 Cały film ! Zrobiła Wszystko, co w jej mocy](https://krainaloducda.tumblr.com/post/659235845272944640)
 - ["Krainy Lodu 2 Cały Film" - Scenariusz](https://krainaloducda.tumblr.com/post/658950221590609920)
@@ -32,7 +33,6 @@
 - [Kraina Lodu 2 Cały film CDA Po polsku](https://krainaloducda.tumblr.com/post/658248754402672640)
 - [Kraina lodu 2 - Cały film - Na szczęście nadal ma tę moc! Recenzja](https://krainaloducda.tumblr.com/post/657983594905632768)
 - [Kraina Lodu 2 cały film po polsku](https://krainaloducda.tumblr.com/post/657901132627247104)
-- [Kraina Lodu 2 cały film cda](https://krainaloducda.tumblr.com/post/657727733089042432)
 <!-- BLOG-POST-LIST:END -->
 
 
