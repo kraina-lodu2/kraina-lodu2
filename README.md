@@ -23,6 +23,7 @@
 ### 💬 Ostatnie Posty na Blogach
 
 <!-- BLOG-POST-LIST:START -->
+- [Love, Rosie (2014) Alex and Rosie - Film online cda](https://www.youtube.com/watch?v=oYd-VIi-VNQ)
 - [Me Before You Zanim się pojawiłeś (2016) cda](https://www.youtube.com/watch?v=Eeo-h1IAdZ8)
 - [Pamiętnik (2004) Noah and Alie The notebook (2004) cda](https://www.youtube.com/watch?v=kAMORvF5i0Q)
 - [The Vow (2012) Paige and Leo - kiss scene I że cię nie opuszczę (2012) Cały Film cda](https://www.youtube.com/watch?v=KEPjkz3M4-U)
@@ -32,7 +33,6 @@
 - [Kraina lodu 2 cały film online - Czy warto oglądać online?](https://krainaloducda.tumblr.com/post/658799468501778432)
 - [Kraina Lodu 2 Cały film po polsku + Malowanki](https://krainaloducda.tumblr.com/post/658771334412779520)
 - [Kraina Lodu 2 Cały film lektor pl](https://krainaloducda.tumblr.com/post/658438145361297408)
-- [Kraina Lodu 2 Cały film CDA Po polsku](https://krainaloducda.tumblr.com/post/658248754402672640)
 <!-- BLOG-POST-LIST:END -->
 
 
